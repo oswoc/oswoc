@@ -5,7 +5,7 @@ Hi!.. im that hacker guy that your friends told you about. Hacking and vlog abou
 
 
 ## 🌐 Socials:
-[![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/isrvb)
+[![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/oswoc)
 
 
 
