@@ -1,5 +1,5 @@
 # 👤 About Me:
-Hi!.. im that hacker guy that your friends told you about. Hacking and vlog about the bountylife. Hackfluencer - Creative - Redteam - Programer - Student.<br><br>
+Hi!.. im that hacker guy that your friends told you about. Hacking and vlog about the bountylife. Hackfluencer - Creative - Redteam - Programer - Student... anyways... anyways :p<br><br>
 [![](https://visitcount.itsvg.in/api?id=isrvb&icon=5&color=0)](https://visitcount.itsvg.in)
 
 ###
